@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @PALGOW (Recep Emir SİNAN)
+- 👀 I’m interested in everything. I love everything. But especially cloud, quantum, blockchain, engineering some stuff etc...
+- 🌱 I’m currently learning industrial engineering. I am taking my education.
